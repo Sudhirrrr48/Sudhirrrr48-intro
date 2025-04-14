@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on [Neon Gaming Hub](neongaminghub.netlify.app)
 
-- 🌱 I’m currently learning **BSc.IT [1st year] from Navi Mumbai**
+- 🌱 I’m currently learning **BSc.IT [2nd year] from Navi Mumbai**
 
 - 📫 How to reach me **sudhirmaurya2726@gmail.com**
 
