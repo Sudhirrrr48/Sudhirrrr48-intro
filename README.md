@@ -13,7 +13,7 @@
 
 - ⚡ Fun fact **Can play competitive online games...[BGMI,STUMBLEGUYS]**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: </h3>
 <p align="left">
 </p>
 
