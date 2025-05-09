@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sudhirmaurya2726@gmail.com**
 
-<h3 align="left">Connect with me: <p>**Instagram: @sudhirrrr48**<p> </h3>
+<h3 align="left">Connect with me: </h3> 
 <p align="left">
 </p>
 
