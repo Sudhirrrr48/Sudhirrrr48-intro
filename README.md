@@ -11,9 +11,7 @@
 
 - 📫 How to reach me **sudhirmaurya2726@gmail.com**
 
-- ⚡ Fun fact **Can play competitive online games...[BGMI,STUMBLEGUYS]**
-
-<h3 align="left">Connect with me: </h3>
+<h3 align="left">Connect with me: Instagram: @sudhirrrr48 </h3>
 <p align="left">
 </p>
 
