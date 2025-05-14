@@ -12,7 +12,7 @@
 - 📫 How to reach me **sudhirmaurya2726@gmail.com**
 
 <h3 align="left">Connect with me: </h3>
-<p> Instagram:- @sudhirrrr48 </p>
+<p> <img src ="https://github.com/user-attachments/assets/c16fddca-9bb8-42ea-9846-3d3d9f0cbba5" width ="15" height="15"> - @sudhirrrr48 </p>
 <p align="left">
 </p>
 
